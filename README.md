@@ -2,7 +2,9 @@
 
 Olá! Bem vindo ao meu livro de receitas. :wave:
 
-- stronogoff de frango
+- Stronogoff de frango
+
+- Farofa de banana
 
   ​
 
